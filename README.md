@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shreeja 
+- 👀 I’m interested in people and data
+- 🌱 I’m currently learning new emerging technologies
+- 📫 How to reach me : Shreejapaul9007@gmail.com
